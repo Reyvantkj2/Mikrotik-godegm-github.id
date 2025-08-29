@@ -1,0 +1,1 @@
+# Mikrotik-godegm-github.id
